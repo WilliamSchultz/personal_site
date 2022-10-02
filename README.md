@@ -1,2 +1,0 @@
-# maxhkunz
-Personal Website
